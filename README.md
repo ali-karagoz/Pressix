@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m currently working on Software QA Test Engineer and looking to collaborate on IT workers for improve my skills and help others.
+I’m currently working on Software QA Test Engineer and looking to collaborate on IT workers for improove my skills and help others.
 
 
 ## 🌐 Socials:
